@@ -1,4 +1,4 @@
-- 👋 Hi, We are **@Zagwerk**
+- 👋 Hi, We are **Zågwerk (@Zagwerk)** from Sweden!
 - 👀 We are playing music!
 <!--- - 🌱 I’m currently learning ... --->
 - 💞️ You can listen to our music at https://2.dh.nu
